@@ -1,0 +1,1 @@
+I am Nnachedo Uzondu, a HNG intern. I just passed stage 1.
